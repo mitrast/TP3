@@ -1,1 +1,1 @@
-I'm blue, dabadi dabada, dabudi, dabuda, dabudi dabadie
+I want to die
